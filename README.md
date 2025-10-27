@@ -1,4 +1,4 @@
 # write me rita, please
 
-send me your result
+write me about your decision
 https://lucayuri.github.io/Safe-NiRi/
